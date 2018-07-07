@@ -26,7 +26,7 @@ I go watch you slowly slip away\
 You're all wanting to put your trust in\
 When I can feel this remedy kickin on\
 Just to taste it, just to want it\
-And I can me say it's not my fault\
+And I can say it's not my fault\
 \
 Say youre sorry\
 When i'm coming down\
