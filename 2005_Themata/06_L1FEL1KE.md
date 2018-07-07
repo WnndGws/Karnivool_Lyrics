@@ -1,7 +1,7 @@
 ### L1FEL1KE
 
 You relate through just the bloodline\
-When you can never take anything that I give\
+When I can never take anything that you give\
 Always wanting to relate through me\
 I go watch you slowly slip away\
 \
