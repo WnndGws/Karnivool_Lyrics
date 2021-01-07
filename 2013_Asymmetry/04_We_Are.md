@@ -53,8 +53,8 @@ This is the worst day I've ever had to stand and witness\
 x2\
 \
 These words of wisdom come with lack of vision\
-[These words are like weapons]
-[We won't look back]
-[We're free no more]
+[These words are like weapons]\
+[We won't look back]\
+[We're free no more]\
 This is the first day I've ever had to stand and witness\
 x3\
